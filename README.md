@@ -1,0 +1,2 @@
+# Antico
+privacy policy
